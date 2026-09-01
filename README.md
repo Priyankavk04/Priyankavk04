@@ -118,7 +118,7 @@ I'm currently looking for opportunities where I can:
 
 💼 LinkedIn: [Add your LinkedIn URL]
 
-📧 Email: [Add your professional email]
+📧 Email:priyankakandgule7@gmail.com
 
 🐙 GitHub: [Priyankavk04](https://github.com/Priyankavk04)
 
