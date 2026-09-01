@@ -1,6 +1,6 @@
 # Hi there! 👋 I'm Priyanka
 
-🎓 **ECE Graduate | Python | SQL | Power BI | Aspiring Software & Data Professional
+🎓 **ECE Graduate | Python | SQL | Power BI | Aspiring Software & Data Professional**
 
 I'm an Electronics & Communication Engineering graduate with an interest in **software development, data analytics, and technology-driven problem solving**.
 
