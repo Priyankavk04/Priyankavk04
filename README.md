@@ -116,7 +116,7 @@ I'm currently looking for opportunities where I can:
 
 ## 🤝 Let's Connect
 
-💼 LinkedIn: [Add your LinkedIn URL]
+💼 LinkedIn: [https://linkedin.com/in/priyanka-kandgule]
 
 📧 Email:priyankakandgule7@gmail.com
 
